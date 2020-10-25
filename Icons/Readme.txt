@@ -1,1 +1,0 @@
-Submit your icons here.
